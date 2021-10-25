@@ -1,0 +1,4 @@
+- Hey, it's @Souvanlasy.
+- I'm a first year student at Lakehead University, ON, Canada studying CS.
+- Outside of school, I'm interested in game modding.
+- You can reach me at souvanlasy@hey.com.
