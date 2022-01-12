@@ -1,4 +1,4 @@
 - Hey, I'm @asouvanlasy.
-- I'm a first year student at Lakehead University, ON, Canada studying CS.
+- I'm studing CS at Lakehead University in Canada
 - Outside of school, I'm interested in Skyrim's modding scene.
 - You can reach me at asouvanlasy@outlook.com.
